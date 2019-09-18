@@ -1,2 +1,2 @@
-# c0rnputer.github.io
+# C0RNPUTER.github.io
 <https://C0RNPUTER.github.io>
